@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Lance
+- 👀 I’m interested in Rivit
+- 🌱 I’m currently learning everything
+- 📫 How to reach me - lance@rivit.ai
